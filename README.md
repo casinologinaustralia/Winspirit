@@ -127,7 +127,7 @@ Users who sign up for Winspirit Casino receive stronger gaming benefits from the
 1. **First Deposit Match**. New users who join Winspirit Casino can receive enhanced initial deposits through their first deposit match which doubles or triples their deposited amount.
 2. **Free Spins**. New players get a group of free spins for popular slots through which they can win actual money even without adding more funds.
 3. **No Deposit Bonus**. The minimum bonus amount that casinos give for free to new members enables players to explore different games cost-free.
-4. ** Loyalty Points**. Happy winners can exchange points they accumulate by placing their first bets for future prizes.
+4. **Loyalty Points**. Happy winners can exchange points they accumulate by placing their first bets for future prizes.
 
 
 ### Ongoing Promotions
